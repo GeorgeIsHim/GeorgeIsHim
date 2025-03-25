@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing yet
 - 📫 How to reach me: idk
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I have a YouTube channel called "TimelessKidd"
+- ⚡ Fun fact: I have a YouTube channel called "16thGenesis"
 
 <!---
 GeorgeIsHim/GeorgeIsHim is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
